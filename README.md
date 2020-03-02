@@ -1,0 +1,1 @@
+# Spot-Crop---AI-based-mobile-application
